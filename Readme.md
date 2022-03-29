@@ -1,0 +1,1 @@
+Parei no minuto 1:52:28
